@@ -63,7 +63,9 @@ Check out my [blog](https://nikolaskama.me/) and follow me on [Twitter](https://
 | [WarGames](https://www.imdb.com/title/tt0086567/)                                          | Thriller/Drama            | 1983 | 7.1/10 |
 | [WarGames: The Dead Code](https://www.imdb.com/title/tt0865957/)                           | Thriller/Drama            | 2008 | 4.5/10 |
 | [Who Am I](https://www.imdb.com/title/tt3042408/)                                          | Drama/Crime               | 2014 | 7.6/10 |
-| [War of the Worlds](https://www.imdb.com/title/tt13186306/)                                | Horror/Thriller/Sci-Fi    | 2025 | 2.9/10 | **Normies/Leftist gave this movie a 2.9/10 rating, the actual facts are 7.8/10. This movie tells how the .gov is collecting our data and they are spying on us...**
+| [War of the Worlds](https://www.imdb.com/title/tt13186306/)                                | Horror/Thriller/Sci-Fi    | 2025 | 2.9/10 | 
+
+**NOTE**: Leftist gave this movie a 2.9/10 rating, the actual facts are 7.8/10. This movie tells how the .gov is collecting our data and they are spying on us
 
 ## Science Fiction / Fantasy
 
